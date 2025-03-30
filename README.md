@@ -2,10 +2,11 @@
 my browser history, links are not specifically chosen to be here (not literally silly! I gotta keep myself from getting doxxed). NSFW beware!
 
 
-history includes NSFW
+History includes NSFW, loli, some visual novel, and a bit of lostmedias (not reddit)
 
+NSFW list:
 
-hub, r34, xv, kaotic, hanime tv, hentaihaven, hentaimama
+hub, r34, xv, kaotic, hanime tv, hentaihaven, hentaimama, hentaigasm, and much more!
 
 
 # WARNING!!!⚠️⚠️⚠️
