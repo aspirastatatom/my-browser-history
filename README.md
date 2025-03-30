@@ -1,5 +1,5 @@
 # My-browser-history
-my browser history, links are not specifically chosen to be here. NSFW beware!
+my browser history, links are not specifically chosen to be here (not literally silly! I gotta keep myself from getting doxxed). NSFW beware!
 
 
 history includes NSFW
